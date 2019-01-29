@@ -6,6 +6,7 @@ There is a test in Photos.
 
 
 
+0:14 
 Oddstacker.
 Flower
 Hallowed
@@ -14,6 +15,7 @@ Pocket
 Knock out.
 Out of options.
 
+0:27
 But stacking it up like demigod.
 Chess of life - I design - your demise.
 
@@ -23,9 +25,10 @@ Thrill for me, scream for ya.
 
 Fuck all the hate, feeling I'm right
 Bo bay, fight you clock you, make it look I'm made to brawl.
-- redraws.I'm not fucking about what others roll aye ya
+- redraws. I'm not fucking about what others roll aye ya
 Embedded will --------- crack you
-Odds are wrecked.
+Odds are wrecked for ya.
+
 
 
 
