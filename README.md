@@ -19,7 +19,7 @@ Out of options.
 But stacking it up like demigod.
 Chess of life - I design - your demise.
 
-Emotion flood bringer.
+Emotion flood bringer, burns the skies.
 
 Thrill for me, scream for ya.
 
