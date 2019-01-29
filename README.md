@@ -29,7 +29,7 @@ Fuck all the hate, feeling I'm right
 Bo bay, fight you clock you, make it look I'm made to brawl.
 - redraws. I'm not fucking about what others roll aye ya
 Embedded will --------- - crack you
-Odds are wrecked - for ya.
+Odds are wrecked.
 
 
 
