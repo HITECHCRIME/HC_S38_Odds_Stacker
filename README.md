@@ -24,7 +24,7 @@ doesn't apply to the univocal questions (?)
 am i here and why, what's the deal
 run for life or burns the skies?
 
-Emotion flood bringer, 
+Emotion flood bringer, we hold them under
 
 Thrill for me, scream for ya.
 
