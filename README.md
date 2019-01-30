@@ -13,7 +13,7 @@ Hallowed
 Bracket
 Pocket
 Knock out.
-Out of options.
+Out of options...
 
 0:27
 but stacking it up like demigod
