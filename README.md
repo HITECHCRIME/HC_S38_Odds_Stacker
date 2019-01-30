@@ -19,9 +19,9 @@ Out of options.
 But stacking it up like demigod.
 Chess of life - I design - your demise.
 
-Run for life.
+Run for life, burns the skies.
 
-Emotion flood bringer, burns the skies.
+Emotion flood bringer, 
 
 Thrill for me, scream for ya.
 
