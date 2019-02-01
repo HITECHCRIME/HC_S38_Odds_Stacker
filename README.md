@@ -18,8 +18,8 @@ Out of options...
 0:27
 but stacking it up like demigod
 chess of life - I design - your demise
-check that mate, what you (think) you'll find 
-is right (?)
+check that mate, what you (think) you'll find  /// is right (?)
+
 doesn't apply to the univocal questions (?)
 am i here and why, what's the deal
 run for life or burns the skies?
