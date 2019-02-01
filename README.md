@@ -20,13 +20,11 @@ but stacking it up like demigod
 chess of life - I design - your demise
 check that mate, what you (think) you'll find  /// is right (?)
 
-doesn't apply to the univocal questions (?)
+doesn't apply to the univocal questions (?) (?)
 am i here and why, what's the deal
 run for life or burns the skies?
 
 Emotion flood bringer, we hold them under
-
-Thrill for me, scream for ya.
 
 Fuck all the hate, feeling I'm right
 Bo bay, fight you clock you, make it look I'm made to brawl.
@@ -37,6 +35,8 @@ Odds are wrecked.
 so...
 
 
+---
+Thrill for me, scream for ya.
 
 
 
