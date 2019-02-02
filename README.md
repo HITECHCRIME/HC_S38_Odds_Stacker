@@ -22,6 +22,7 @@ Knock out.
 Out of options...
 
 Emotion flood bringer, we hold them under
+hold them accountable
 
 Fuck all the hate, feeling I'm right
 Bo bay, fight you clock you, make it look I'm made to brawl.
