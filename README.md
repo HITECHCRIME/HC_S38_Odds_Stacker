@@ -30,6 +30,7 @@ Bo bay, fight you clock you, make it look I'm made to brawl.
 
 Embedded will --------- - crack you ?
 Odds are wrecked.
+
 so...
 
 
